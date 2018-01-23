@@ -1,2 +1,0 @@
-Keliang Lu
-baseball team
